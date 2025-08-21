@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning SEO, Chat GTP, Digital Marketing Advanced Expertise
 - 💞️ I’m looking to collaborate on SEO, Chat GTP and Digital Marketing Expertise
 - 📫 How to reach me: www.az-com.ch
-- 😄 Pronouns: ...
+- 😄 Pronouns: He
 - ⚡ Fun fact: ...
 
 <!---
